@@ -3,9 +3,9 @@
 
 Contact: IF YOU WANT SCRIPT DM ME IN TELEGRAM 👇 👇 👇
 
-https://t.me/bulajsna
+https://t.me/kukutenike
 
-https://t.me/bulajsna
+https://t.me/kukutenike
 
 HASHTAGS: HASHTAGS: HASHTAGS: HASHTAGS:
 
